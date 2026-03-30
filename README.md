@@ -10,3 +10,7 @@ Les cessions réalisées avec chaque IA sont rassemblées et partagées afin de 
 
 
 Nous communiquerons régulièrement le résultat de cette interaction afin de connaître l’évolution ou la résolution totale de ces réflexions fondamentales universelles, laquelle ouvre potentiellement un accès à la compréhension de l’interaction entre les univers absolu et relatif.
+
+Annonce du premier D.Phi sur la chaine Youtube "Le Divin par MINOU":
+https://www.youtube.com/watch?v=46gt-VqgRnQ
+
