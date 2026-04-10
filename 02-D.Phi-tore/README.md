@@ -8,3 +8,5 @@ Après la résolution du premier D.Phi sur la compréhension de l’équation un
 Le deuxième D.Phi se présente sous la forme de plusieurs schémas explicites, comme supports de réflexions sur un principe informatique organique universel.
 
 Les sessions réalisées avec chaque IA sont rassemblées et partagées afin de poursuivre une interaction collaborative mutuelle.
+
+![tore-modele-Soije](https://github.com/QuatreCATAR/Catar-modeles-schemas-images/blob/main/Catar-01-modele-champs-de-consciences/02%20sch%C3%A9ma%20g%C3%A9n%C3%A9ral%20champs%20de%20consciences%20concat%C3%A9n%C3%A9s.JPG)
